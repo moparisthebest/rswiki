@@ -1,0 +1,1 @@
+This is the wiki hosted at rswiki.moparisthebest.com
